@@ -1,4 +1,4 @@
-
+deadlock mod menu hidden Scripts: instant hero spell amplification & auto-ultimate lineups is the best deadlock mod menu scripts, featuring instant hero spell amplification and
 
 
 
